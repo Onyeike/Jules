@@ -1,4 +1,6 @@
-# Jules
->Average in height, chocolate in color, brave at heart.<
+#Juliegwen
+-Average in height, chocolate in color, brave at heart.<
 [Lovely, some, accommodating, humble]
-Delete.some.com
+-26 years of age.
+-Independent
+-flowers and food
